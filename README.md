@@ -1,4 +1,4 @@
-Udemy is the largest online learning and teaching marketplace, empowering over 50 million students globally. Seeing its success, Zipprr offers a trustable <a href="https://zipprr.com/category/udemy-clone/">Udemy clone script</a> to help others enter this booming industry.
+Udemy is the largest online learning and teaching marketplace, empowering over 50 million students globally. Seeing its success, Zipprr offers a trustable <a href="https://zipprr.com/udemy-clone/">Udemy clone script</a> to help others enter this booming industry.
 
 <h2><b>Essential Features Covered in Zipprr's Udemy Clone</b></h2>
 
